@@ -1,1 +1,1 @@
-### A&I group - Minjae Kim
+### Data Strategy Team - Minjae Kim
